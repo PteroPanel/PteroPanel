@@ -9,7 +9,7 @@
 
 - 🤝 I’m looking for help with [Greeone DNS](https://pteropanel.github.io/GreeoneDNS/)
 
-- 💬 Ask me about **My Live**
+- 💬 Ask me about **My Life**
 
 - 📫 How to reach me **rayyanradhityautomo@gmail.com**
 
