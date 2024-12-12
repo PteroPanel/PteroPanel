@@ -7,7 +7,7 @@
 
 - 👯 I’m looking to collaborate on [Greeone DNS](https://pteropanel.github.io/GreeoneDNS/)
 
-- 🤝 I’m looking for help with [Greeone DNS](https://pteropanel.github.io/GreeoneDNS/)
+- 🤝 I’m looking help for [Greeone DNS](https://pteropanel.github.io/GreeoneDNS/)
 
 - 💬 Ask me about **My Life**
 
