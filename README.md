@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **My Life**
 
-- 📫 How to reach me **rayyanradhityautomo@gmail.com**
+- 📫 How to reach me **rayyanradhityautomo@aol.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
